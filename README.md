@@ -1,5 +1,10 @@
 # Historique cadets de l'aviation royale du Canada
 
+## 2022
+Le programme d'entraînement d'été 2022 proposera 12 Centre d'instruction d'été des cadets (CEC) centralisés au lieu de 21, ainsi que plus de 200 programmes d'activités des cadets (PAC) disponibles localement.
+
+Référence : Gouvernement du Canada. (2022, 28 juillet). Recadrage du programme des cadets - Canada.ca. https://www.canada.ca/fr/ministere-defense-nationale/services/cadets-rangers-juniors-canadiens/cadets/rafraichissement-programme-cadets.html
+
 ## 2020
 
 En octobre 2020, le Sous-ministre adjoint (Services d'examen), également connu sous l'acronyme SMA(Svcs Ex), a publié une évaluation des Cadets et des Rangers juniors canadiens (CRJC). Le rapport, qui comprend neuf conclusions clés et cinq recommandations, présente un Plan d'action de la direction (PAD) avec 40 mesures à prendre. Le recadrage du Programme des cadets est crucial pour mettre en œuvre ces mesures et améliorer le programme en offrant des opportunités équitables, abordables et agiles à travers le Canada. L'objectif principal de ce recadrage est de développer les attributs du bon citoyen et du leadership chez les jeunes, de promouvoir leur condition physique et de stimuler leur intérêt pour les activités maritimes, terrestres et aériennes des Forces armées canadiennes en utilisant les meilleures pratiques et en tirant des leçons du passé.
