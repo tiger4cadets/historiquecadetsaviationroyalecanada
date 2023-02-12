@@ -13,6 +13,8 @@ Référence : Gouvernement du Canada. (2022, 28 juillet). Recadrage du programme
 
 
 ## 2015
+### 18 avril 2015 
+Mise en place des nouveaux insignes de grade de l'Aviation Royale Canadienne pour les membres des Organisations de cadets du Canada (OCC). Les membres pourront commander leurs nouveaux grades et attributs d'uniforme via leur compte Logistik Unicorp (LU) et devront trouver un tailleur local pour effectuer les altérations nécessaires. Les coûts des altérations pourront être remboursés jusqu'à un montant maximal de 30 $ pour les membres du rang et de 45 $ pour les officiers. Les dépenses des URSC devront être codées à l'ordre interne 215721 et transférées au projet d'implémentation avant le 15 février 2016.
 ### 29 janvier 2015
 Mise en place d'une directive sur le processus autorisé pour les demandes de fusils, carabines à air comprimé et pièces
 Cette directive vise à rationaliser le processus de commande de fusils pour l'Ordre général des cadets du Canada (OCC). Les unités de l'OCC devront soumettre toutes les demandes de fusil à travers un responsable désigné pour approbation avant de les transmettre aux bases/escadres de soutien pour réquisition par le système d'information de gestion des ressources de la défense. Les demandes de pièces de fusil devront également être transmises par le même responsable pour approbation. Aucune demande de fusil ne sera validée sans l'approbation du Gp S Natl CRJC 2-4-3, et toutes les questions peuvent être adressées à ce groupe.
