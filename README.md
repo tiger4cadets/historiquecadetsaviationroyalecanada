@@ -25,6 +25,27 @@ Le quartier général est établi à Ottawa, d'où émane une grande énergie po
 
 Référence : Ligue des cadets de l’air du Canada. (2020). Historique - La Ligue des cadets de l’Air du Canada. https://aircadetleague.com/fr/historique/
 
+## 2013
+
+### 4 décembre 2013
+
+Point sur le programme d'habillement des cadets : en raison de réductions budgétaires, un gel temporaire de la distribution de vêtements a été imposé. L'objectif est de fournir à tous les cadets au moins un uniforme complet, ce qui sera réalisé grâce à un financement limité pour l'AF 2013-2014. Les commandants des Unités régionales de soutien aux cadets (URSC) alloueront les fonds équitablement et les stocks d'UDE, de TIM et d'UEC inutilisés seront distribués aux cadets qui n'ont pas d'uniforme. Les cadets sont encouragés à chercher des pièces d'uniforme chez eux ou auprès de leurs amis qui ont quitté le programme. Le recours à d'anciens uniformes est également une solution.
+
+Référence : Gouvernement du Canada. (2013, 4 décembre). CANCDTGEN 003/13 - Canada.ca. https://www.canada.ca/fr/ministere-defense-nationale/services/cadets-rangers-juniors-canadiens/politique-crjc/cancdtgens/2013-2020/cancdtgen003-13fr.html
+
+### 25 novembre 2013
+
+L'Ordre général des cadets du Canada a approuvé la mise à jour de l'OAIC 13-02, qui met l'accent sur les promotions fondées sur le mérite et les attributs de leadership, avec une plus grande clarté quant à l'autorité responsable de toutes les promotions des cadets. Les critères de promotion sont liés au modèle d'équipe de leadership et au rendement en matière de leadership, en obligeant les cadets à réussir des évaluations de leadership et de condition physique. Les améliorations apportées incluent des directives pour les étapes à suivre lorsque les cadets ne méritent pas encore une promotion, ainsi que l'élimination des contingentements maximums pour les grades supérieurs afin de promouvoir tous les cadets méritants. La politique a été simplifiée en n'incluant qu'un minimum de directives, tout en encourageant les corps et escadrons à partager leurs pratiques exemplaires.
+
+Référence : Gouvernement du Canada. (2022, 27 mai). CANCDTGEN 002/13 - Canada.ca. https://www.canada.ca/fr/ministere-defense-nationale/services/cadets-rangers-juniors-canadiens/politique-crjc/cancdtgens/2013-2020/cancdtgen002-13fr.html
+
+### 25 septembre 2013
+
+Le CANCDTGEN a annoncé une mesure rapide visant à promouvoir la bonne condition physique chez les cadets en accordant 30 $ supplémentaires par cadet pour les activités physiques facultatives. Cette mesure vise également à alléger le fardeau financier des comités répondants des corps et des escadrons locaux tout en réacheminant les fonds du programme vers les corps/esc pour atténuer les obstacles à l'instruction. Les commandants des URSC et des corps/esc sont encouragés à utiliser cette allocation supplémentaire avant la fin de l'année fiscale en cours et à faire connaître leurs réussites grâce à ce financement supplémentaire.
+
+Référence : Gouvernement du canada. (2013, 25 septembre). CANCDTGEN 001/13. https://www.canada.ca/fr/ministere-defense-nationale/services/cadets-rangers-juniors-canadiens/politique-crjc/cancdtgens/2013-2020/cancdtgen001-13fr.html
+
+
 ## 1942
 
 En mai 1942, le nombre d’escadrons passe à 135, comptant 10 000 cadets.
