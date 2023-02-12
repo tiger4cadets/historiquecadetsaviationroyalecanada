@@ -15,8 +15,14 @@ Référence : Gouvernement du Canada. (2022, 28 juillet). Recadrage du programme
 ## 2016
 ### 2 août 2016
 Le Gp S Natl CRJC s'engage à alléger les formalités administratives redondantes dans la mesure du possible. Dans cet effort de modernisation des politiques et de fourniture d'une orientation utile et pertinente, les ordonnances sur l'administration et l'instruction des cadets sont actuellement en cours d'examen. Ainsi, plusieurs de ces ordonnances ont été annulées, notamment celles concernant la représentation du MDN aux assemblées nationales des Ligues, les programmes d'assurance des Ligues de cadets, les déplacements des cadets à la fin de l'instruction estivale ou autres activités autorisées, et la sélection d'un Officier régional des opérations aériennes et d'un Officier du cadre des instructeurs de cadets de secteur. Ces OAIC ont été retirées du répertoire des fichiers de l'organisation des cadets.
+
+Référence :  nationale, D. (2021, 8 mars). CANCDTGEN 002-16. https://www.canada.ca/fr/ministere-defense-nationale/services/cadets-rangers-juniors-canadiens/politique-crjc/cancdtgens/2013-2020/cancdtgen002-16.html
+
 ### 29 juin 2016
 L'Ordre général des cadets du Canada (CANCDTGEN) a publié les Ordonnances du Groupe de soutien national aux cadets et aux Rangers junior canadiens afin de simplifier et mettre à jour les directives et instructions en rapport avec les opérations et l'administration des Organisations de cadets du Canada. Les ordonnances complètent et amplifient les règlements existants en fournissant une orientation aux enjeux propres au Groupe de soutien national. L'objectif du groupe est de minimiser le nombre et la complexité des ordonnances et directives normatives, tout en éliminant celles répétitives et contradictoires. Les Ordonnances sur l'administration et l'instruction des cadets (OAIC) sont remplacées progressivement par les ordonnances du Groupe de soutien national, des manuels, des instructions permanentes d'opération (IPO) ou d'autres publications, voire annulées sans aucune publication de remplacement si nécessaire. Ainsi, les OAIC ne font plus l'objet de modification, ni d'écriture de nouvelles OAIC.
+
+Référence : nationale, D. (2021, 8 mars). CANCDTGEN 001/16. https://www.canada.ca/fr/ministere-defense-nationale/services/cadets-rangers-juniors-canadiens/politique-crjc/cancdtgens/2013-2020/cancdtgen001-16fr.html
+
 
 ## 2015
 ### 18 avril 2015 
