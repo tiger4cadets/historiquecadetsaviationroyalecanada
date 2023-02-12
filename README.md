@@ -11,20 +11,6 @@ En octobre 2020, le Sous-ministre adjoint (Services d'examen), également connu 
 
 Référence : Gouvernement du Canada. (2022, 28 juillet). Recadrage du programme des cadets - Canada.ca. https://www.canada.ca/fr/ministere-defense-nationale/services/cadets-rangers-juniors-canadiens/cadets/rafraichissement-programme-cadets.html
 
-
-## 1975
-> L'organisation n'accueillait que les garçons jusqu'au 30 juillet 1975, date à laquelle les filles furent alors reconnues officiellement sous le vocable de cadettes. 
-
-Collectif Wikipédia. (2020, 3 décembre). Cadets de l’Aviation royale du Canada. Dans Wikipédia. Récupéré le 11 février 2023 de https://fr.wikipedia.org/w/index.php?title=Cadets_de_l%27Aviation_royale_du_Canada&oldid=177236203
-
-## 1943
-
-Les chiffres s’élevent à 315 escadrons pour un total de 23 000 cadets.
-
-Le quartier général est établi à Ottawa, d'où émane une grande énergie pour le recrutement de commanditaires et de bénévoles dans toutes les provinces. Bien que la Ligue ait initialement un rôle militaire, ses fondateurs ont également envisagé les avantages à long terme de la formation des cadets de l'Air. En se consacrant à l'étude, les cadets peuvent accroître leurs connaissances et devenir plus actifs dans la société. En participant aux activités dirigées par les escadrons, ils ont l'occasion de développer les qualités d'un bon citoyen. C'est l'aspect éducatif de la formation offerte par la Ligue qui attire particulièrement les jeunes leaders du pays. Des clubs philanthropiques, des éducateurs, des chambres de commerce et des organisations d'anciens combattants offrent leur soutien à la Ligue, non seulement pour contribuer à l'effort de guerre, mais aussi pour aider les jeunes du pays à mieux se préparer à leur rôle futur de citoyens responsables.
-
-Référence : Ligue des cadets de l’air du Canada. (2020). Historique - La Ligue des cadets de l’Air du Canada. https://aircadetleague.com/fr/historique/
-
 ## 2013
 
 ### 4 décembre 2013
@@ -45,6 +31,18 @@ Le CANCDTGEN a annoncé une mesure rapide visant à promouvoir la bonne conditio
 
 Référence : Gouvernement du canada. (2013, 25 septembre). CANCDTGEN 001/13. https://www.canada.ca/fr/ministere-defense-nationale/services/cadets-rangers-juniors-canadiens/politique-crjc/cancdtgens/2013-2020/cancdtgen001-13fr.html
 
+## 1975
+> L'organisation n'accueillait que les garçons jusqu'au 30 juillet 1975, date à laquelle les filles furent alors reconnues officiellement sous le vocable de cadettes. 
+
+Collectif Wikipédia. (2020, 3 décembre). Cadets de l’Aviation royale du Canada. Dans Wikipédia. Récupéré le 11 février 2023 de https://fr.wikipedia.org/w/index.php?title=Cadets_de_l%27Aviation_royale_du_Canada&oldid=177236203
+
+## 1943
+
+Les chiffres s’élevent à 315 escadrons pour un total de 23 000 cadets.
+
+Le quartier général est établi à Ottawa, d'où émane une grande énergie pour le recrutement de commanditaires et de bénévoles dans toutes les provinces. Bien que la Ligue ait initialement un rôle militaire, ses fondateurs ont également envisagé les avantages à long terme de la formation des cadets de l'Air. En se consacrant à l'étude, les cadets peuvent accroître leurs connaissances et devenir plus actifs dans la société. En participant aux activités dirigées par les escadrons, ils ont l'occasion de développer les qualités d'un bon citoyen. C'est l'aspect éducatif de la formation offerte par la Ligue qui attire particulièrement les jeunes leaders du pays. Des clubs philanthropiques, des éducateurs, des chambres de commerce et des organisations d'anciens combattants offrent leur soutien à la Ligue, non seulement pour contribuer à l'effort de guerre, mais aussi pour aider les jeunes du pays à mieux se préparer à leur rôle futur de citoyens responsables.
+
+Référence : Ligue des cadets de l’air du Canada. (2020). Historique - La Ligue des cadets de l’Air du Canada. https://aircadetleague.com/fr/historique/
 
 ## 1942
 
