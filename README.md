@@ -11,6 +11,40 @@ En octobre 2020, le Sous-ministre adjoint (Services d'examen), également connu 
 
 Référence : Gouvernement du Canada. (2022, 28 juillet). Recadrage du programme des cadets - Canada.ca. https://www.canada.ca/fr/ministere-defense-nationale/services/cadets-rangers-juniors-canadiens/cadets/rafraichissement-programme-cadets.html
 
+
+## 2015
+### 29 janvier 2015
+Mise en place d'une directive sur le processus autorisé pour les demandes de fusils, carabines à air comprimé et pièces
+Cette directive vise à rationaliser le processus de commande de fusils pour l'Ordre général des cadets du Canada (OCC). Les unités de l'OCC devront soumettre toutes les demandes de fusil à travers un responsable désigné pour approbation avant de les transmettre aux bases/escadres de soutien pour réquisition par le système d'information de gestion des ressources de la défense. Les demandes de pièces de fusil devront également être transmises par le même responsable pour approbation. Aucune demande de fusil ne sera validée sans l'approbation du Gp S Natl CRJC 2-4-3, et toutes les questions peuvent être adressées à ce groupe.
+
+Référence : nationale, D. (2021, 8 mars). CANCDTGEN 001/15. https://www.canada.ca/fr/ministere-defense-nationale/services/cadets-rangers-juniors-canadiens/politique-crjc/cancdtgens/2013-2020/cancdtgen001-15fr.html
+
+## 2014
+
+### 19 octobre 2014
+Le Conseil de Liaison des Forces canadiennes (CLFC) a pour mission d'inciter les dirigeants d'entreprises à accorder volontairement des congés aux réservistes pour des raisons de formation et d'opération, sans préjudice pour eux. Son mandat est de faciliter l'accessibilité des réservistes pour accomplir leurs tâches militaires en obtenant le soutien et la collaboration des dirigeants d'entreprises canadiens. Pour cela, le CLFC sollicite et obtient l'appui des employeurs, reconnaît leur soutien, aide à résoudre les conflits et accompagne les réservistes dans leur relation avec leurs employeurs. Différents programmes et outils sont proposés, notamment le Programme d'aide aux réservistes, le Programme d'assistance pour les unités de la réserve et des récompenses pour les employeurs. Chaque Unité de Réserve Supérieure de Commandement (URSC) a un représentant SAOIC pour les programmes d'appui du CLFC, qui peut fournir une aide aux membres SAIOC. Pour contacter le représentant, il suffit de consulter les coordonnées disponibles en ligne.
+
+Référence : nationale, D. (2021, 8 mars). CANCDTGEN 005-14. https://www.canada.ca/fr/ministere-defense-nationale/services/cadets-rangers-juniors-canadiens/politique-crjc/cancdtgens/2013-2020/cancdtgen005-14.html
+
+
+### 19 septembre 2014
+L'Organisation des cadets du Canada valorise grandement la rétroaction de ses partenaires, surtout des cadets, et cherche constamment de nouvelles façons de la communiquer, notamment à travers des discussions en ligne, des assemblées, des visites de petits groupes et des rassemblements formels et informels. La rétroaction peut être communiquée efficacement en contactant le personnel adulte de l'escadron ou du corps de cadet local par téléphone, courriel ou en personne. Si un enjeu ne peut être résolu ou pris en compte à l'échelon local, il peut être communiqué à l'Unité régionale de soutien des cadets appropriée, ou directement au directeur - cadets and Rangers canadiens juniors. Les médias sociaux sont également une option pour fournir de la rétroaction. Les cadets, parents et partenaires de la communauté sont encouragés à communiquer leurs préoccupations directement avec l'OCC pour s'assurer que les enjeux seront pris en compte et les changements nécessaires seront effectués.
+
+Référence : nationale, D. (2021, 8 mars). CANCDTGEN 004/14. https://www.canada.ca/fr/ministere-defense-nationale/services/cadets-rangers-juniors-canadiens/politique-crjc/cancdtgens/2013-2020/cancdtgen004-14fr.html
+
+### 8 juillet 2014
+
+La fin de trois initiatives du Programme des cadets : l'Initiative sur l'accroissement de la population de cadets, le Projet de gestion des changements dans la structure des emplois militaires du Cadre des instructeurs de cadets et les initiatives de mise à jour du Programme des cadets. Les termes « IAPC », « PGC SEM CIC » et « MJPC » ne seront plus utilisés, sauf dans un contexte historique. Les initiatives mises en place pour stimuler la croissance future du Programme des cadets seront gérées conformément à l'objectif de renouvellement 4.3. Ces vastes projets ont grandement contribué à améliorer plusieurs facettes du Programme des cadets et du CIC. Les travaux ont été menés par de nombreux membres du personnel et représentants des trois Ligues à l'échelle nationale, régionale et locale, que nous remercions pour leur contribution.
+
+Référence : nationale, D. (2021, 8 mars). CANCDTGEN 002/14. https://www.canada.ca/fr/ministere-defense-nationale/services/cadets-rangers-juniors-canadiens/politique-crjc/cancdtgens/2013-2020/cancdtgen002-14fr.html
+
+### 6 juillet 2014
+
+Le programme de gestion de l'organisation des cadets canadiens, CadetNet, sera remplacé par Microsoft Outlook 2010, qui est plus moderne et plus fiable. Les utilisateurs auront accès à des fonctionnalités telles que la gestion des e-mails, des événements du calendrier et des tâches. La migration se fera en deux phases, la première étant le personnel appelé à servir dans les centres d'instruction d'été, suivie des autres utilisateurs CadetNet en début d'année d'instruction. Les adresses individuelles et génériques de chaque utilisateur resteront les mêmes, mais les adresses associées à un poste seront abandonnées. Les utilisateurs qui souhaitent se familiariser avec Outlook peuvent consulter les informations disponibles sur l'Extranet des OCC.
+
+Référence : nationale, D. (2021, 8 mars). CANCDTGEN 002/13. https://www.canada.ca/fr/ministere-defense-nationale/services/cadets-rangers-juniors-canadiens/politique-crjc/cancdtgens/2013-2020/cancdtgen002-13fr.html
+
+
 ## 2013
 
 ### 4 décembre 2013
