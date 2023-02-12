@@ -8,6 +8,10 @@ Collectif Wikipédia. (2020, 3 décembre). Cadets de l’Aviation royale du Cana
 
 Référence : Collectif Wikipédia. (2020, 3 décembre). Cadets de l’Aviation royale du Canada. Dans Wikipédia. Récupéré le 11 février 2023 de https://fr.wikipedia.org/w/index.php?title=Cadets_de_l%27Aviation_royale_du_Canada&oldid=177236203
 
+Le 9 avril 1941, la Ligue des Cadets de l'Air du Canada a officiellement reçu des lettres patentes relevant de la partie II de l'Acte des Compagnies de 1934, autorisant la Ligue à opérer en tant que société de bienfaisance à but non lucratif. Cette charte, approuvée par le Maréchal de l'Air William (Billy) Bishop, George B. Foster et Hugh P. Illsley, a permis à la Ligue d'établir des succursales dans toutes les régions du Canada.
+
+Référence : Ligue des cadets de l’air du Canada. (2020). Historique - La Ligue des cadets de l’Air du Canada. https://aircadetleague.com/fr/historique/
+
 ## 1940
 Le 19 novembre 1940, le Conseil adopta le décret CP 6647, permettant à l'Organisation des cadets de l'Air de former un corps junior destiné aux garçons de 12 à 14 ans, ainsi qu'un corps senior pour les adolescents âgés de 15 à 18 ans.
 
