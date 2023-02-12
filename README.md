@@ -4,6 +4,10 @@
 
 Collectif Wikipédia. (2020, 3 décembre). Cadets de l’Aviation royale du Canada. Dans Wikipédia. Récupéré le 11 février 2023 de https://fr.wikipedia.org/w/index.php?title=Cadets_de_l%27Aviation_royale_du_Canada&oldid=177236203
 ## 1941
+Au début de 1941, un comité national fut créé à Ottawa avec des personnalités éminentes. Le 2 juin de la même année, ils se réunirent pour la première fois. L'une de leurs premières mesures fut de nommer, parmi les personnes influentes de chaque province, un président pour chacune des neuf provinces. Les présidents provinciaux formèrent ensuite leur propre comité et parcoururent allègrement leur province pour rencontrer le plus grand nombre possible de personnes qualifiées d'esprit et pour recruter des commanditaires. La structuration des escadrons se poursuivit jusqu'à l'automne de 1941 et à la fin de l'année, on comptait 79 escadrons affiliés dans tout le pays.
+
+Référence : Ligue des cadets de l’air du Canada. (2020). Historique - La Ligue des cadets de l’Air du Canada. https://aircadetleague.com/fr/historique/
+
 > La Ligue des cadets de l'air est à l'origine créée pendant la Deuxième Guerre mondiale. Elle obtient officiellement, le 9 avril 1941, une charte fédérale précisant qu’elle ne fait pas partie des Forces canadiennes. Les officiers dirigeants les escadrons font donc partie du Cadre des Instructeurs des Cadets (CIC). Les officiers du CIC sont des réservistes des Forces canadiennes. 
 
 Référence : Collectif Wikipédia. (2020, 3 décembre). Cadets de l’Aviation royale du Canada. Dans Wikipédia. Récupéré le 11 février 2023 de https://fr.wikipedia.org/w/index.php?title=Cadets_de_l%27Aviation_royale_du_Canada&oldid=177236203
