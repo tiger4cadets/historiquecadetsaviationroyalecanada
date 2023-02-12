@@ -6,4 +6,13 @@ Collectif Wikipédia. (2020, 3 décembre). Cadets de l’Aviation royale du Cana
 ## 1941
 > La Ligue des cadets de l'air est à l'origine créée pendant la Deuxième Guerre mondiale. Elle obtient officiellement, le 9 avril 1941, une charte fédérale précisant qu’elle ne fait pas partie des Forces canadiennes. Les officiers dirigeants les escadrons font donc partie du Cadre des Instructeurs des Cadets (CIC). Les officiers du CIC sont des réservistes des Forces canadiennes. 
 
-Collectif Wikipédia. (2020, 3 décembre). Cadets de l’Aviation royale du Canada. Dans Wikipédia. Récupéré le 11 février 2023 de https://fr.wikipedia.org/w/index.php?title=Cadets_de_l%27Aviation_royale_du_Canada&oldid=177236203
+Référence : Collectif Wikipédia. (2020, 3 décembre). Cadets de l’Aviation royale du Canada. Dans Wikipédia. Récupéré le 11 février 2023 de https://fr.wikipedia.org/w/index.php?title=Cadets_de_l%27Aviation_royale_du_Canada&oldid=177236203
+
+## 1940
+Le 19 novembre 1940, le Conseil adopta le décret CP 6647, permettant à l'Organisation des cadets de l'Air de former un corps junior destiné aux garçons de 12 à 14 ans, ainsi qu'un corps senior pour les adolescents âgés de 15 à 18 ans.
+
+Référence : Ligue des cadets de l’air du Canada. (2020). Historique - La Ligue des cadets de l’Air du Canada. https://aircadetleague.com/fr/historique/
+
+En 1940, le ministre de la Défense nationale de l'Armée de l'Air, Charles G. Power, conscient des besoins de formation des cadets de l'Air, sollicita un groupe d'influents civils pour la mise en place d'une organisation de bénévoles à l'échelle nationale. Cette initiative visait à renforcer le parrainage et l'envergure du mouvement. La réponse fut immédiate et conduisit à la création d'une organisation civile travaillant en partenariat avec la Ligue des cadets de l'Air. Comme cela fut démontré ultérieurement, cette collaboration est à l'origine des retentissants succès du Mouvement des cadets de l'Air du Canada.
+
+Référence : Ligue des cadets de l’air du Canada. (2020). Historique - La Ligue des cadets de l’Air du Canada. https://aircadetleague.com/fr/historique/
