@@ -9,6 +9,10 @@ Collectif Wikipédia. (2020, 3 décembre). Cadets de l’Aviation royale du Cana
 
 Les chiffres s’élevent à 315 escadrons pour un total de 23 000 cadets.
 
+Le quartier général est établi à Ottawa, d'où émane une grande énergie pour le recrutement de commanditaires et de bénévoles dans toutes les provinces. Bien que la Ligue ait initialement un rôle militaire, ses fondateurs ont également envisagé les avantages à long terme de la formation des cadets de l'Air. En se consacrant à l'étude, les cadets peuvent accroître leurs connaissances et devenir plus actifs dans la société. En participant aux activités dirigées par les escadrons, ils ont l'occasion de développer les qualités d'un bon citoyen. C'est l'aspect éducatif de la formation offerte par la Ligue qui attire particulièrement les jeunes leaders du pays. Des clubs philanthropiques, des éducateurs, des chambres de commerce et des organisations d'anciens combattants offrent leur soutien à la Ligue, non seulement pour contribuer à l'effort de guerre, mais aussi pour aider les jeunes du pays à mieux se préparer à leur rôle futur de citoyens responsables.
+
+Référence : Ligue des cadets de l’air du Canada. (2020). Historique - La Ligue des cadets de l’Air du Canada. https://aircadetleague.com/fr/historique/
+
 ## 1942
 
 En mai 1942, le nombre d’escadrons passe à 135, comptant 10 000 cadets.
